@@ -25,44 +25,44 @@ As an independent contributor, I have a weakness. That is to achieve perfection.
 
 ## MY WORK AS A MANAGER:
 
-Practice Servant Leadership
-Announce what needs to be done.
-Let anyone choose it to work on and let anyone join them to finish it.
-I don’t want to put any procedures or ways to do it.
-I don’t want it to be done in a specific way.
-I want perfection over faster delivery
-I am okay to explain it over and over until you feel comfortable in understanding it.
-I am not concerned on the desk time you maintain.
-I highly expect you to feel me as a friend and pull me in every discussion apart from work and have fun.
+*Practice Servant Leadership
+*Announce what needs to be done.
+*Let anyone choose it to work on and let anyone join them to finish it.
+*I don’t want to put any procedures or ways to do it.
+*I don’t want it to be done in a specific way.
+*I want perfection over faster delivery
+*I am okay to explain it over and over until you feel comfortable in understanding it.
+*I am not concerned on the desk time you maintain.
+*I highly expect you to feel me as a friend and pull me in every discussion apart from work and have fun.
 
 ## WHEN DO I GET GRUMPY:
-When you become pessimistic.
-When you say this is not how it has to be done at the end
-When you haven’t yet started working on it after we have an agreement
+*When you become pessimistic.
+*When you say this is not how it has to be done at the end
+*When you haven’t yet started working on it after we have an agreement
 
 ## WHAT CAN YOU DO WHEN I AM GRUMPY:
-Initiate a conversation
-Start doing it involving me.
-Once we are on track, you are good.
-May be do all this over a drink. ;-)
+*Initiate a conversation
+*Start doing it involving me.
+*Once we are on track, you are good.
+*May be do all this over a drink. ;-)
 
 ## FEEDBACK:
-Don’t need a formal setup for this.
-As and when needed.
-If we wait for a formal setup it grown into a pile and hard to learn over things.
-Just don’t make me feel like I am an asshole. Because I am willing to learn and change. (https://en.wikipedia.org/wiki/The_No_Asshole_Rule) 
+*Don’t need a formal setup for this.
+*As and when needed.
+*If we wait for a formal setup it grown into a pile and hard to learn over things.
+*Just don’t make me feel like I am an asshole. Because I am willing to learn and change. (https://en.wikipedia.org/wiki/The_No_Asshole_Rule) 
 
 ## PREFERRED WAY OF COMMUNICATION:
-Text
-Phone/Video Call
-Slack
-Email
-Communication in a group/channel is even more comfortable.
-As the day ends Text, Phone are lot better. Once I reach home, lot of errands keep falling.
+*Text
+*Phone/Video Call
+*Slack
+*Email
+*Communication in a group/channel is even more comfortable.
+*As the day ends Text, Phone are lot better. Once I reach home, lot of errands keep falling.
 
 ## APPRECIATE ME??
-Only in private please. 
-Cant handle appreciations in a group. Don’t know why. Makes me uncomfortable.
+*Only in private please. 
+*Cant handle appreciations in a group. Don’t know why. Makes me uncomfortable.
 
 
 ## OTHER THINGS:
